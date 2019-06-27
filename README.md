@@ -4,8 +4,8 @@
 								——Tagore
 
 
-\_________________________________________________
-![fd2c8383e9ee93894610a5366dde2870.png](evernotecid://4B1857D5-061F-48FE-86D4-354F8EB4B2FD/wwwevernotecom/196070612/ENResource/p293)
+* * *
+
 
 
 
@@ -23,12 +23,7 @@ This is a place that his heart lives in. And I will lead you to this place to tr
 
 **That's it, at your humble service, my princess.**
 
-\
-\
-![4fee7ec793033b5410dac7e1ddefaf89.png](evernotecid://4B1857D5-061F-48FE-86D4-354F8EB4B2FD/wwwevernotecom/196070612/ENResource/p284)
 
-\
-\________________________________________________
 
 
 * * *
@@ -37,12 +32,12 @@ This is a place that his heart lives in. And I will lead you to this place to tr
 
 The door is opening. Come in please. 
 
-![00a820490f3b072ca636dfec81920464.png](evernotecid://4B1857D5-061F-48FE-86D4-354F8EB4B2FD/wwwevernotecom/196070612/ENResource/p285)
+
 * [ ]`Please ask a question that you wanna to get an answear.`
 
 He has drawed five Tarot cards for you. 
 
-![c8f21d8b92e17a8da50c3cbc75be03c4.png](evernotecid://4B1857D5-061F-48FE-86D4-354F8EB4B2FD/wwwevernotecom/196070612/ENResource/p286)
+
 
 
 1. **Self** (5 of swords): Before you fight for something, make sure you consider the consequences. When one person seeks to dominate another, both become slaves. This card shows the end results of a battle and nobody seems to be rejoicing. The victor has won, but at what cost? He wanted to dominate and enslave his opponent and he is not happy with the outcome. This card represents a clash of wills, where even the winner does not win. It is an empty victory.
@@ -56,7 +51,7 @@ He has drawed five Tarot cards for you.
 
 #### SECTION II: Sword & Poems 
 
-![9510aef68283fcb6a4f714f9507a2f3d.jpeg](evernotecid://4B1857D5-061F-48FE-86D4-354F8EB4B2FD/wwwevernotecom/196070612/ENResource/p287)
+
 `Here are some poems written by him. You can learn the stories behind these poems`  
 
 
@@ -87,7 +82,7 @@ He has drawed five Tarot cards for you.
 >让我，
 >在你眼中淹没。
 >\
->\___________________
+* * *
 >
 >##### 《风》
 >无梦之国，
@@ -96,7 +91,7 @@ He has drawed five Tarot cards for you.
 >徒留已无人能辨的语言
 >牵着她的名字在雨中穿梭。
 >\
->\___________________
+* * *
 >
 >
 >##### 《魔音》
@@ -117,18 +112,18 @@ He has drawed five Tarot cards for you.
 >逃离这迷茫的饥荒。  ”
 
 * * *
-![7cd3966803ce83a6f13c1c1eddb9fb62.png](evernotecid://4B1857D5-061F-48FE-86D4-354F8EB4B2FD/wwwevernotecom/196070612/ENResource/p288)
+
 `He likes sword combats and always swings his great sword jumping around.`
 SUCH AS...
 
-![e223ab7a295f4a40f3fcf4ba194b5fd0.gif](evernotecid://4B1857D5-061F-48FE-86D4-354F8EB4B2FD/wwwevernotecom/196070612/ENResource/p289) ![9965f7363377ac4f349558d1da3a2d4c.gif](evernotecid://4B1857D5-061F-48FE-86D4-354F8EB4B2FD/wwwevernotecom/196070612/ENResource/p290)
+
 
 
 
 
 * * *
 #### SECTION III: A Little Game
-![c1b7b1e677397eb8a797cb1a63223113.jpeg](evernotecid://4B1857D5-061F-48FE-86D4-354F8EB4B2FD/wwwevernotecom/196070612/ENResource/p291)
+
 >Q：一个矿泉水瓶能容纳些什么东西呢？
 
 
