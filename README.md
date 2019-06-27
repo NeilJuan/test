@@ -31,13 +31,13 @@ This is a place that his heart lives in. And I will lead you to this place to tr
 #### SECTION I: Alice's Dream Place 
 
 The door is opening. Come in please. 
-
+![witcher](witcher.png)
 
 * [ ]`Please ask a question that you wanna to get an answear.`
 
 He has drawed five Tarot cards for you. 
 
-
+![Tarot](Tarot.png)
 
 
 1. **Self** (5 of swords): Before you fight for something, make sure you consider the consequences. When one person seeks to dominate another, both become slaves. This card shows the end results of a battle and nobody seems to be rejoicing. The victor has won, but at what cost? He wanted to dominate and enslave his opponent and he is not happy with the outcome. This card represents a clash of wills, where even the winner does not win. It is an empty victory.
