@@ -1,6 +1,6 @@
 title: Greetings
 logo: Neil.jpg
 description: Hi Miss Peng.
-show_downloads: false
+# show_downloads: false
 google_analytics:
 theme: jekyll-theme-minimal
